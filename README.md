@@ -1,4 +1,4 @@
 # hello-world
 Just another repository
 
-I am a man, too, you know. I pee standing up.
+I am a man, too, you know. I go pee pee standing up.
